@@ -3,7 +3,8 @@
 
 ## Preview of Functional  and Excetive Dashboards
 
-"C:\Users\ARYA\Downloads\Excel_Dashboards.mp4"
+
+https://github.com/user-attachments/assets/be8e3cd4-d139-4f6b-bbb1-a9fec22c072c
 
 ## Project Overview 
 
