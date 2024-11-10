@@ -1,7 +1,7 @@
 # CAREER ASPIRATION OF GENZ - ADVANCE EXCEL DASGBOARDS
 
 
-## Preview of Functional  and Excetive Dashboards
+## Preview of Functional  and Executive Dashboards
 
 
 https://github.com/user-attachments/assets/be8e3cd4-d139-4f6b-bbb1-a9fec22c072c
